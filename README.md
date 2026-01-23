@@ -1,7 +1,6 @@
 ##          와 ☕ ? ! 
 -여기 제 귀여운 두 남동생 사진이에요 .ᐟ ⋅˚₊‧ 
 
-https://hits.seeyoufarm.com/api/count/incr/badge.svg?url=https://github.com/M-bimbim1970j&count_bg=%23FFFCF0&title_bg=%23FFFCF0&title=%E2%98%95&edge_flat=false
 
 ![F9xu6RzbcAAnsJE](https://github.com/user-attachments/assets/c1bd6dcc-887b-42ba-8744-0d9f1b4cc7b7)
 
