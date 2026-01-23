@@ -1,4 +1,6 @@
 ##          와 ☕ ? ! 
+![label=🦭](https://komarev.com/ghpvc/?username=M-bimbim1970j&label=🦭%20số%20lượng%20người%20xem&color=fffcf0&style=flat)
+
 -여기 제 귀여운 두 남동생 사진이에요 .ᐟ ⋅˚₊‧ 
 
 
