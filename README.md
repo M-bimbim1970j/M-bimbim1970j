@@ -1,8 +1,6 @@
 ##          와 ☕ ? ! 
-![](https://komarev.com/ghpvc/?username=M-bimbim1970j&label=☕&color=lightgrey&style=flat&cacheBust=2)
-
-
 -여기 제 귀여운 두 남동생 사진이에요 .ᐟ ⋅˚₊‧ 
+![🦭](https://img.shields.io/badge/🦭-1,234-fffcf0)
 
 
 ![F9xu6RzbcAAnsJE](https://github.com/user-attachments/assets/c1bd6dcc-887b-42ba-8744-0d9f1b4cc7b7)
