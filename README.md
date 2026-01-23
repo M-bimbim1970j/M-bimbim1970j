@@ -1,7 +1,7 @@
 ##          와 ☕ ? ! 
 -여기 제 귀여운 두 남동생 사진이에요 .ᐟ ⋅˚₊‧ 
 
-    : ![🦭op](https://img.shields.io/badge/🦭-3,4769-fffcf0)   .ᐟ
+    : ![🦭op](https://img.shields.io/badge/🦭op-3,4769-fffcf0)   .ᐟ
 
 -이자형 ･ﾟ:.*✧.ᐟ
                (｡•̀ᴗ•́｡) 
