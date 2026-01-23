@@ -1,16 +1,13 @@
 ##          와 ☕ ? ! 
 -여기 제 귀여운 두 남동생 사진이에요 .ᐟ ⋅˚₊‧ 
 
-![ 🦭 ](https://komarev.com/ghpvc/?username=M-bimbim1970j&label=🦭%100số%100lượng%100người%100xem&color=fffcf0&style=flat)
-
-
-![F9xu6RzbcAAnsJE](https://github.com/user-attachments/assets/c1bd6dcc-887b-42ba-8744-0d9f1b4cc7b7)
-
  ⋅˚₊‧ 𝒕𝒉𝒐𝒔𝒆 𝒕𝒘𝒐 𝒄𝒂𝒏𝒅𝒚 𝒈𝒖𝒚𝒔 𝒍𝒐𝒐𝒌 𝒔𝒐 𝒄𝒖𝒕𝒆 .ᐟ
  
  𝒕𝒉𝒆𝒚 𝒎𝒂𝒅𝒆 𝒎𝒚 𝒉𝒆𝒂𝒓𝒕 𝒇𝒍𝒖𝒕𝒕𝒆𝒓 >𝒘< .ᐟ 🌿
 
 : 𝒊 𝒘𝒊𝒍𝒍 𝒍𝒐𝒗𝒆 𝑳𝒖𝒌𝒆 𝒂𝒏𝒅 𝑨𝒏𝒅𝒓𝒆𝒘 𝒇𝒐𝒓𝒆𝒗𝒆𝒓 ´꒳`
         нιнι, ɴιcᴇ 🥵
+![F9xu6RzbcAAnsJE](https://github.com/user-attachments/assets/c1bd6dcc-887b-42ba-8744-0d9f1b4cc7b7)
+
 <img width="1500" height="500" alt="Không Có Tiêu Đề2_20260122183956" src="https://github.com/user-attachments/assets/4506cbc3-5cad-4596-8a02-11ce65054378" />
 .───────────────────.
