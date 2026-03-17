@@ -4,8 +4,7 @@
     : ![🦭;](https://img.shields.io/badge/🦭;-3,4769-f1dfdf)   .ᐟ
 
                (｡•̀ᴗ•́｡) 
-
-![F9xu6RzbcAAnsJE](https://github.com/user-attachments/assets/c1bd6dcc-887b-42ba-8744-0d9f1b4cc7b7)
+![luke davis nerd project](https://github.com/user-attachments/assets/f883b40b-3ce8-434a-8a50-3ab8516dc9d1)
 
  ⋅˚₊‧ 𝒕𝒉𝒐𝒔𝒆 𝒕𝒘𝒐 𝒄𝒂𝒏𝒅𝒚 𝒈𝒖𝒚𝒔 𝒍𝒐𝒐𝒌 𝒔𝒐 𝒄𝒖𝒕𝒆 .ᐟ
  
