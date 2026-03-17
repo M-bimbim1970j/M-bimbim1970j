@@ -1,7 +1,7 @@
 
 -여기 제 귀여운 두 남동생 사진이에요 .ᐟ ⋅˚₊‧ 
 
-    : ![🦭;](https://img.shields.io/badge/🦭;-3,4769-f1dfdf)   .ᐟ
+    : ![🦭;](https://img.shields.io/badge/🦭;-3,4769-c9f5f4)   .ᐟ
 
                (｡•̀ᴗ•́｡)             
                                            
