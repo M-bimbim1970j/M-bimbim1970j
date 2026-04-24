@@ -5,7 +5,11 @@
 
                (｡•̀ᴗ•́｡)             
                                            
-![luke davis nerd project](https://github.com/user-attachments/assets/f883b40b-3ce8-434a-8a50-3ab8516dc9d1)
+
+
+https://github.com/user-attachments/assets/a419b559-1c5d-45da-870e-3253448e1593
+
+
 
 
  ⋅˚₊‧ 𝒕𝒉𝒐𝒔𝒆 𝒕𝒘𝒐 𝒄𝒂𝒏𝒅𝒚 𝒈𝒖𝒚𝒔 𝒍𝒐𝒐𝒌 𝒔𝒐 𝒄𝒖𝒕𝒆
