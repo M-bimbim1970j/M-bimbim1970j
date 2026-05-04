@@ -4,8 +4,8 @@
     : ![🦭;](https://img.shields.io/badge/🦭;-3,500-c9f5f4)   .ᐟ
 
             (｡•̀ᴗ•́｡): 𝘭𝘰𝘷𝘦 𝘮𝘺 𝘧𝘳𝘪𝘦𝘯𝘥.             
-                                       
-https://github.com/user-attachments/assets/1a87e0ad-6850-47a9-9004-7f0d10b7e9b4
+
+
 
 
 
