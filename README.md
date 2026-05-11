@@ -3,18 +3,16 @@
 
     : ![🦭;](https://img.shields.io/badge/🦭;-3,500-c9f5f4)   .ᐟ
 
-            (｡•̀ᴗ•́｡): 𝘭𝘰𝘷𝘦 Howls.        
-
-
-
-https://github.com/user-attachments/assets/6a320e32-f3a1-4ad5-951c-0a8c69779319
+            (｡•̀ᴗ•́｡): thang dien.        
 
 
 
 
+https://github.com/user-attachments/assets/1b5c2027-6bfb-4e88-9197-e1dedc0b02f9
 
 
- ⋅˚₊‧ @stvlightss ´꒳`
+
+ ⋅˚₊‧ @bic_puong0931 ´꒳`
 
 
 
