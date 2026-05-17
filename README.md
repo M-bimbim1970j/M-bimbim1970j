@@ -3,13 +3,11 @@
 
     : ![🌊](https://img.shields.io/badge/🌊-3,500-c8e2f6)   .ᐟ
 
-            (｡•̀ᴗ•́｡): thang dien.
+            (｡•̀ᴗ•́｡): dthuong qua.
 
-https://github.com/user-attachments/assets/1b5c2027-6bfb-4e88-9197-e1dedc0b02f9
+https://github.com/user-attachments/assets/c5e72b5c-ea0a-4f1c-b04a-4866ee1bbb12
 
-
-
- ⋅˚₊‧ @bic_puong0931 ´꒳`
+ ⋅˚₊‧ @00.h4n ´꒳`
 
 
 
