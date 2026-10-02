@@ -5,7 +5,8 @@
 
             (｡•̀ᴗ•́｡): 𝓬𝓾𝓽𝓮 𝔁𝓲𝓾.
 
-<img width="888" height="835" alt="0EBAF3A8-D595-4F28-B341-34D3FCF9E3A5" src="https://github.com/user-attachments/assets/7d754e9d-edcb-4d7b-aec2-bc71b4f72066" />
+<img width="1089" height="1280" alt="1000023874" src="https://github.com/user-attachments/assets/02eedae7-436a-4766-a4ac-a78b7d6dc72d" />
+
 
 
 
