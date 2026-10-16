@@ -6,7 +6,7 @@
         font-family="Arial, sans-serif"
         font-size="32"
         font-weight="bold"
-        fill="#d5e2ef">
+        fill="#abcced">
     -여기 제 귀여운 두 남동생 사진이에요 .ᐟ ⋅˚₊‧ 
   </text>
 </svg>
