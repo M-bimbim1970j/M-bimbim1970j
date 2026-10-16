@@ -1,7 +1,7 @@
 
 -여기 제 귀여운 두 남동생 사진이에요 .ᐟ ⋅˚₊‧ 
 
-    : ![ଳ](https://img.shields.io/badge/ଳ-3,667-d5e2ef)   .ᐟ
+    : ![ଳ⋅˚](https://img.shields.io/badge/ଳ⋅˚-3,667-d5e2ef)   .ᐟ
 
             (｡•̀ᴗ•́｡): 𝓬𝓾𝓽𝓮 𝔁𝓲𝓾.
 
