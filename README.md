@@ -8,6 +8,8 @@
             (｡•̀ᴗ•́｡): 𝓬𝓾𝓽𝓮 𝔁𝓲𝓾.
 
 <img width="1089" height="1280" alt="1000023874" src="https://github.com/user-attachments/assets/02eedae7-436a-4766-a4ac-a78b7d6dc72d" />
+<img width="1000" height="562" alt="1000023911" src="https://github.com/user-attachments/assets/63cc92ca-7799-4de5-bf24-715dd062f74a" />
+
 
  ⋅˚₊‧ 𝚖𝚢 𝚍𝚛𝚊𝚠𝚒𝚗𝚐𝚐 : ´꒳`
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
