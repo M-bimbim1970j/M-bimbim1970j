@@ -9,5 +9,5 @@
 
 <img width="500" height="268" alt="1000023914" src="https://github.com/user-attachments/assets/ef5c7bb2-8bc4-4676-96cd-79f307674da0" />
 
- ⋅˚₊‧ nah nah nah : ´꒳`
+ ⋅˚₊‧ miew miew : ´꒳`
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀··──────── ꒰ঌ·✦·໒꒱ ────────··
